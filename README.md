@@ -1,0 +1,1 @@
+# latihan2022.gihub.io
